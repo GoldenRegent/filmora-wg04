@@ -1,4 +1,4 @@
-# 
+# Melhor Adobe Premiere Pro para PC addons é o melhor Adobe Premiere Pro para PC addons com rotoscopia e sampler. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
